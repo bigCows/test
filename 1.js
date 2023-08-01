@@ -2,9 +2,6 @@
 asd
 asd
 asd
-asdasd
-as
-das
 das
 d
 as
